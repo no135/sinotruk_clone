@@ -1,0 +1,1 @@
+# sinotruk_clone
